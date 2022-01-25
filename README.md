@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JakeyWakeyJakey
+- 👀 I’m interested in gaming and game design
+- 🌱 I’m currently learning Java developement and Web Design
+- 💞️ I’m looking to collaborate on Games and Websites
+- 📫 How to reach me - @jake_laroche on IG
